@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Fathia Rahmah
 
-NIM : 
+NIM : 607062400064
 
 ## Instruksi
 
